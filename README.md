@@ -7,6 +7,6 @@
 ![Screenshot (130)](https://github.com/Anilkumawat1/College-Counselling-System-JEE-/assets/98680635/0f88829e-f910-4013-874f-d4cf78b82f9b)
 ![Screenshot (131)](https://github.com/Anilkumawat1/College-Counselling-System-JEE-/assets/98680635/2494a047-7272-438a-a5aa-375795f955c4)
 ![Screenshot (132)](https://github.com/Anilkumawat1/College-Counselling-System-JEE-/assets/98680635/6df78a80-2ec5-4880-b7b8-8739e6271b7b)
-![Screenshot (133)](https://github.com/Anilkumawat1/College-Counselling-System-JEE-/assets/98680635/7cd6b3ff-c815-4838-a092-3f5
+![Screenshot (133)](https://github.com/Anilkumawat1/College-Counselling-System-JEE-/assets/98680635/7cd6b3ff-c815-4838-a092-3f5ecaf0185a)
 ![Screenshot (134)](https://github.com/Anilkumawat1/College-Counselling-System-JEE-/assets/98680635/e2dc94c7-e3fa-47d8-bd49-9b703b2f290f)
-ecaf0185a)
+
